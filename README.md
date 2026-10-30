@@ -1,0 +1,2 @@
+# Momotarou_Dengeki_CHT_TC_patch
+Language Translation
